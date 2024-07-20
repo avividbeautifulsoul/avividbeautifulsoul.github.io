@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Hi! 
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Do you know that the sun is envy with you because you have brighter and warm soul?
