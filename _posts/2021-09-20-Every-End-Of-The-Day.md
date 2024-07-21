@@ -9,28 +9,10 @@ Aku mencoba cari arti dari lagu ini dan ternyata, lagu ini begitu merepresentasi
 Well, karena kamu tidak akan pernah membaca tulisan ini (karena ini adalah safe space-ku) tentu saja aku tidak akan mengungkapkan apapun.
 Terjemahan salah satu dari lirik lagu tersebut dalam bahasa inggris adalah sebagai berikut:
 
-"Monday, Better day
+"Monday, Better day. A day that makes my heart rush like the first time. Sunday, Better day. A day when I think about you all day"
 
-A day that makes my heart rush like the first time
+"I get greedy, wanting our relationship to get a bit closer. Just one step, that much closer. My monlogues, my whispers. You might be curious too"
 
-Sunday, Better day
-
-A day when I think about you all day
-
-I get greedy, wanting our relationship to get a bit closer
-
-Just one step, that much closer
-
-My monlogues, my whispers
-You might be curious too
-
-
-It’s because I like you
-
-Even though I have on a cold face
-
-My heart isn’t like that, it’s a lie
-
-But foolish you makes me frustrated"
+"It’s because I like you. Even though I have on a cold face. My heart isn’t like that, it’s a lie. But foolish you makes me frustrated"
 
 Jadi, am I being greedy?
