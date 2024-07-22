@@ -8,4 +8,4 @@ Guess what, beberapa waktu yang lalu aku pergi ke Lake District. Aku harus bilan
 Entah kenapa, aku selalu membayangkan, pasti kamu akan sangat bahagia jika bermain ke Lake District. I mean, danau yang begitu mythical,
 hiking spot dan kapal pesiar? Terdengar seperti mimpikan. Oia di Lake District juga aku membuat video untuk Karin dan Stella, karena mereka akan menjalani hidup baru. 
 Bahwa hidup mereka kini bukan hanya tentang diri mereka masing-masing, namun juga ada manusia lain yang terus membersamai mereka. Tentu terbersit dibenakku, bagaimana jika kita hidup bersama. selamanya?
-Pikiran konyol, tapi semoga ada malaikat yang mengamini haha
+Pikiran konyol, tapi semoga ada malaikat yang mengamini haha again, I do not think that I deserve you in million years. So why do I have a little silly thing called "hope"?
