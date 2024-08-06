@@ -1,4 +1,4 @@
-## Terlambat itu Sakiti, apalagi Menyesal
+## Terlambat itu Sakit, apalagi Menyesal
 
 Akhirnya aku mengetahui bahwa kamu memilih yang lain. Betapa sakitnya pada saat itu.
 Kamu tidak pernah bersalah apa-apa dan maaf jika berbagai kata-kataku sempat menyakiti kamu.
